@@ -1,6 +1,5 @@
 - 👋 Hi, I’m MADHUMITHA V
 - 🌱 I’m currently learning B.E(Electronics and Communication Engineering)
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email:vmadhumitha22122004@gmail.com
 
 
